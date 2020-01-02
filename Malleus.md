@@ -16,7 +16,7 @@ Note that Malleus' orbit is elliptical and its axis tilts at 16 degrees. It has 
 
 ## Seasons
 
-There are *five* seasons on Malleus. Four of them are familiar to us: a winter, a summer, a spring and a fall, but there is a fifth "season". This season occurs when habitable land passons beneath the planet's rings' shadows. 
+There are *five* seasons on Malleus. Four of them are familiar to us: a winter, a summer, a spring and a fall, but there is a fifth "season". This season occurs when habitable land passes beneath the planet's rings' shadows, creating an extended period of shade, allowing nocturnal entities and interdimensional creatures to roam free. 
 
 ## Life Formation:
 
